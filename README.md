@@ -1,1 +1,0 @@
-I have been working on this project for some time now, and the school saw me working on it and assumed I was playing a game. So now I have decided to go ahead and make a website for it. I am proud of my work, and they aren’t going to stop me.
